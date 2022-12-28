@@ -20,6 +20,13 @@ Dr. Hosny Ahmed Abbas
 
 Dr. Ibrahim El-Sayed
 
+Information Technology Department
+
+Faculty of computers and information
+
+Luxor University
+
+
 -------------------------------------------------------------------
 
 ![Screenshot (95)](https://user-images.githubusercontent.com/58705759/209854717-83ad209e-a8f1-4498-84dd-3788ac38b424.png)
